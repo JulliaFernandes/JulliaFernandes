@@ -1,4 +1,5 @@
 ### Oii!! Eu sou a Jullia Fernandes
+Estudante de Engenharia da Computação-CEFET-MG
 
 </div>
 <div align="center">
