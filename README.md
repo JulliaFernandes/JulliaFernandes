@@ -1,5 +1,5 @@
 ### Oii!! Eu sou a Jullia Fernandes
-:mortar_board: Estudante no 5º periodo de Engenharia da Computação no CEFET-MG, CAMPUS V(Divinópolis-MG)
+:mortar_board: Estudante no 7º periodo de Engenharia da Computação no CEFET-MG, CAMPUS V(Divinópolis-MG)
 
 </div>
 <div align="center">
